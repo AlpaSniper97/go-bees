@@ -1,2 +1,2 @@
 Nombre de los compañeros
-Miguel Blanco
+Jose Javier Velasco Whu
